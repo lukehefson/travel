@@ -1,3 +1,4 @@
 - [Our guide to things to do in Penang with kids](http://www.wheressharon.com/asia-with-kids/things-to-do-in-penang-with-kids)
 - [Georgetown: the newest hipster destination in southeast asia](http://wanderluxe.theluxenomad.com/georgetown-newest-hipster-destination-southeast-asia/)
 - [Our Penang guide for digital nomads on a budget](http://www.u-strasse.com/our-penang-guide-for-digital-nomads-on-a-budget/)
+- [Where to drink in Penang for cheap](http://www.u-strasse.com/where-to-drink-in-penang-for-cheap-and-bonus-city-snaps/)
