@@ -1,1 +1,2 @@
 - [Comms8 travel journal: Hainan island, China’s Hawaii](http://www.comms8.com/blog/2014/9/5/comms8-travel-journal-hainan-island-chinas-hawaii)
+- [Chill-out China: tropical island adventures on Hainan](http://www.lonelyplanet.com/china/hainan/travel-tips-and-articles/chill-out-china-tropical-island-adventures-on-hainan)
