@@ -1,0 +1,1 @@
+- [Comms8 travel journal: Hainan island, China’s Hawaii](http://www.comms8.com/blog/2014/9/5/comms8-travel-journal-hainan-island-chinas-hawaii)
