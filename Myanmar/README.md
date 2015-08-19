@@ -1,1 +1,2 @@
-Ngapali: http://www.timeout.com/travel/features/1251/alternative-asia-the-hipster-hotlist
+- Ngapali: http://www.timeout.com/travel/features/1251/alternative-asia-the-hipster-hotlist
+- 19th street in Yangon: http://www.globalpost.com/article/6510774/2015/04/09/yangon-cooler-brooklyn
