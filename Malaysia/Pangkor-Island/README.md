@@ -1,0 +1,2 @@
+- [Wikitravel](http://wikitravel.org/en/Pangkor)
+- [Travelfish](http://www.travelfish.org/transport/malaysia/peninsular_malaysia/perak/pangkor_island/all)
