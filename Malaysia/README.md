@@ -1,0 +1,1 @@
+- [Rickshaw Travel's favourite beaches in Malaysia](http://www.rickshawtravel.co.uk/blog/chloes-favourite-beaches-in-malaysia/)
