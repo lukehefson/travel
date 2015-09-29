@@ -7,6 +7,7 @@ Getting there: http://www.movetocambodia.com/phnom-penh/how-to-get-from-phnom-pe
 - Otres Beach is gerenally considered the nicest beach on mainland Sihanoukville
 - Sokha Beach seems nice and is private (and therefore no hawkers), but you can purchase a cheap guest pass for the Sokha Beach Resort and use their pool too
 - Non-beach [things to do in Sihanoukville](http://www.movetocambodia.com/city-guides/sihanoukville/sihanoukville-activities/)
+- [Getting to Koh Rong from Sihanoukville](http://www.movetocambodia.com/islands/how-to-get-to-koh-rong-from-sihanoukville/)
 
 # Accomodation
 
