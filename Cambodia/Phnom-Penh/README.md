@@ -5,6 +5,7 @@
 # Eat/Drink
 - [Malis](http://www.tripadvisor.co.uk/Restaurant_Review-g293940-d1372181-Reviews-Malis_Restaurant-Phnom_Penh.html)
 - [Showbox](http://www.tripadvisor.co.uk/Restaurant_Review-g293940-d4569331-Reviews-Show_Box-Phnom_Penh.html) - Dive bar that does cheap beer, food and gigs
+- [Pyongyang Restaurant](http://roadsandkingdoms.com/2013/dining-with-dear-leader/)
 
 # Accomodation
 
