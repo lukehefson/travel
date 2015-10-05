@@ -15,3 +15,4 @@
 # Do
 
 - [Ly La Sport and Recreation Center](http://www.movetocambodia.com/expat-qa/expat-kid-qa-splish-splash-pool-time-in-phnom-penh/) (kids splash pool)
+- [Kids City](http://www.movetocambodia.com/phnom-penh/review-kids-city-phnom-penh/) (soft play, science stuff)
