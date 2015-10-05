@@ -7,11 +7,6 @@
 - [Showbox](http://www.tripadvisor.co.uk/Restaurant_Review-g293940-d4569331-Reviews-Show_Box-Phnom_Penh.html) - Dive bar that does cheap beer, food and gigs
 - [Pyongyang Restaurant](http://roadsandkingdoms.com/2013/dining-with-dear-leader/)
 
-# Accomodation
-
-- [The Mad Monkey Backpackers Hostel Phnom Penh](http://madmonkeyhostels.com/phnompenh/)
-- 
-
 # Do
 
 - [Ly La Sport and Recreation Center](http://www.movetocambodia.com/expat-qa/expat-kid-qa-splish-splash-pool-time-in-phnom-penh/) (kids splash pool)
