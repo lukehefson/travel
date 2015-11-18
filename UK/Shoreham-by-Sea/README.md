@@ -1,0 +1,20 @@
+- Walk along the houseboats
+- The view from Mill Hill
+- The beach
+    - The old fort
+    - Millionaires mile
+- The airport café
+- The Duke of Wellington pub (great beer)
+- The Red Lion pub (ye olde feel)
+- The Bridge pub (for outside drinking)
+- The Beach House restaurant for burgers and/or seafood
+- Blunden’s fish’n’chips
+- Marlipins Museum
+- The dog’s home
+- Cycle to Brighton
+- Look at St Mary de Haura Church
+
+- Nearby
+    - Sussex Wildlife Trust
+    - Perch café in Lancing
+    - Spring Gardens Pick Your Own (summer only)
