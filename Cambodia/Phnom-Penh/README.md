@@ -3,7 +3,7 @@
 - [Malis](http://www.tripadvisor.co.uk/Restaurant_Review-g293940-d1372181-Reviews-Malis_Restaurant-Phnom_Penh.html)
 - [Showbox](http://www.tripadvisor.co.uk/Restaurant_Review-g293940-d4569331-Reviews-Show_Box-Phnom_Penh.html) - Dive bar that does cheap beer, food and gigs
 - [Pyongyang Restaurant](http://roadsandkingdoms.com/2013/dining-with-dear-leader/)
-- [http://nyampenh.com/2011/01/13/ca-vang/](http://nyampenh.com/2011/01/13/ca-vang/) - Bun Cha Hanoi!
+- [Ca Vang](http://nyampenh.com/2011/01/13/ca-vang/) - Bun Cha Hanoi!
 
 # Do
 
