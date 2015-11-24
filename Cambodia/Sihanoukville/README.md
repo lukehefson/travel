@@ -21,3 +21,5 @@ Getting there: http://www.movetocambodia.com/phnom-penh/how-to-get-from-phnom-pe
 ## Sihanoukville
 
 - [Five Men, Fresh Beer](http://www.movetocambodia.com/food/review-five-men-fresh-beer-sihanoukville/)
+- Lots of reviews saying that the restaurant at Secret Garden at Otres is good (["best fish amok](http://asiatravelbug.net/2013/05/16/sihanoukville-a-week-in-paradise/))
+
