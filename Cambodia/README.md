@@ -13,4 +13,5 @@ To try:
 - Ang dtray-meuk: little grilled squid
 - Kuy teav: Noodle soup
 - Lort Cha: Eggy udon
+- Nom pang (or *num* pang) : bánh mì
 - Kampot crab
