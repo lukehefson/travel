@@ -6,12 +6,13 @@ Great all-round site for Cambodia tips: [Move to Cambodia](http://www.movetocamb
 
 To try:
 - Bai sach chrouk: Pork and rice (breakfast, often sold-out early)
-- Fish amok (try and have the mousse version)
-- Khmer red (or muslim beef) curry, usually served with a baguette
+- ~~Fish amok (try and have the mousse version)~~
+- ~~Khmer red (or muslim beef) curry, usually served with a baguette~~
 - Lap Khmer: Lime-marinated Khmer beef salad
 - Nom banh chok or 'Khmer noodles' (breakfast, often sold-out early)
 - Ang dtray-meuk: little grilled squid
 - Kuy teav: Noodle soup
 - Lort Cha: Eggy udon
 - Nom pang (or *num* pang) : bánh mì
+- ~~Lok lak~~
 - Kampot crab
