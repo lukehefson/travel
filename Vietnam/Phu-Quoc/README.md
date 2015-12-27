@@ -1,1 +1,2 @@
 - [Nomadic Notes: Phu Quoc Travel Guide](http://www.nomadicnotes.com/travel-guides/phu-quoc-vietnam/)
+- [A blog post with a good section on having a toddler in Phu Quoc (and accomodation recs)](http://sweetmotherofblog.com/travelling-in-vietnam-with-toddler/)
