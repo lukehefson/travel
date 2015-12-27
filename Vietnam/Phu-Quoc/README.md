@@ -1,0 +1,1 @@
+- [Nomadic Notes: Phu Quoc Travel Guide](http://www.nomadicnotes.com/travel-guides/phu-quoc-vietnam/)
