@@ -1,0 +1,1 @@
+- [My Little Nomads: section on China Beach (Danang)](http://mylittlenomads.com/trip-review-vietnam)
