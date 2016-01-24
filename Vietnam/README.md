@@ -1,1 +1,2 @@
+- [A really detailed Vietnam blog with **lots of street food recommendations**](http://vietnamcoracle.com)
 - [Sweet Mother of Blog: Vietnam with a toddler](http://sweetmotherofblog.com/travelling-in-vietnam-with-toddler/)
