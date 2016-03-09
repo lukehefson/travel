@@ -14,4 +14,4 @@
 ## Notes
 
 - It's pronounced `Foo Kwok`
-- Duong Dong is pronounced `Zoo'ong dong`
+- Duong Dong is pronounced `Zoo'ong Dong`
