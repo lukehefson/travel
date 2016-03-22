@@ -6,4 +6,5 @@
 
 - A beautiful and well-researched [list of street food places](http://bitesandbourbon.com/blog/2015/1/13/exploring-vietnam-the-colorful-food-culture-of-hoi-an-13-things-to-eat-hoi-an-food-guide)
 - [List of places to eat (updated Sept. 2015)](http://www.rustycompass.com/vietnam-travel-guide-233/hoi-an-28/eating-16#.VvCj9sfis4M)
+- [Tips from a street food tour](http://www.afatgirlsfoodguide.com/2015/08/05/hoi-an-local-food-tour/)
 - [8 Cafés for DNs](http://www.edwinmerino.co/8-cafes-da-nang-made-digital-nomads/)
