@@ -13,3 +13,4 @@
 # Accomodation
 
 - Post: [Finding a house in Hoi An](http://www.travellinganyway.com/renting-a-house-in-hoi-an-accommodation-for-families/) (TL;DR: Look on notice boards at expat haunts)
+- Post: [Staying at guesthouses in Hoi An](http://www.travellinganyway.com/hoi-an-guest-houses-for-families/)
