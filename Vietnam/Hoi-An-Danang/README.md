@@ -14,3 +14,4 @@
 
 - Post: [Finding a house in Hoi An](http://www.travellinganyway.com/renting-a-house-in-hoi-an-accommodation-for-families/) (TL;DR: Look on notice boards at expat haunts)
 - Post: [Staying at guesthouses in Hoi An](http://www.travellinganyway.com/hoi-an-guest-houses-for-families/)
+- The [Ocean villas](https://www.tripadvisor.com/Hotel_Review-g298085-d2298509-Reviews-The_Ocean_Villas-Da_Nang_Quang_Nam_Province.html) (between Da Nang and Hoi An) is expensive but has a kids playground and 2-bed villas with private pools!
