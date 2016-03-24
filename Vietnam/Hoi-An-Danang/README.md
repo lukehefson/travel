@@ -8,3 +8,4 @@
 - [List of places to eat (updated Sept. 2015)](http://www.rustycompass.com/vietnam-travel-guide-233/hoi-an-28/eating-16#.VvCj9sfis4M)
 - [Tips from a street food tour](http://www.afatgirlsfoodguide.com/2015/08/05/hoi-an-local-food-tour/)
 - [8 Cafés for DNs](http://www.edwinmerino.co/8-cafes-da-nang-made-digital-nomads/)
+- Post: [8 family friendly restaurants](http://www.travellinganyway.com/eight-family-friendly-restaurants-hoi-an-vietnam/)
