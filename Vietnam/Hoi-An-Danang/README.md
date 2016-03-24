@@ -9,3 +9,7 @@
 - [Tips from a street food tour](http://www.afatgirlsfoodguide.com/2015/08/05/hoi-an-local-food-tour/)
 - [8 Cafés for DNs](http://www.edwinmerino.co/8-cafes-da-nang-made-digital-nomads/)
 - Post: [8 family friendly restaurants](http://www.travellinganyway.com/eight-family-friendly-restaurants-hoi-an-vietnam/)
+
+# Accomodation
+
+- Post: [Finding a house in Hoi An](http://www.travellinganyway.com/renting-a-house-in-hoi-an-accommodation-for-families/) (TL;DR: Look on notice boards at expat haunts)
