@@ -21,6 +21,5 @@
 - [Lăng Cô](https://en.wikivoyage.org/wiki/Lăng_Cô) via the Hai Van Pass
   - [more](http://quintessentialcollectionvietnam.com/places/what-a-smart-phone-can-make-of-lang-co-bay)
   - [Lang Co Beach Resort](http://mylittlenomads.com/beaches-in-vietnam)
-  - 
   
 - [Hoa’s Place](http://mylittlenomads.com/beaches-in-vietnam) (on China Beach south of Danang and adjacent to Marble Mountain)
