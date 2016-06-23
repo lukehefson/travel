@@ -1,0 +1,1 @@
+- Guardian list of [SF on a budget](http://www.theguardian.com/travel/2016/may/12/san-francisco-budget-affordable-food-hotel-spa-readers?utm_content=buffer4dec1&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer)
