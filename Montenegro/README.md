@@ -1,0 +1,3 @@
+- Przno Beach (between Kotor bay and Budvar) is supposed to be sandy and very nice
+- [Budva, Montenegro: Secret Seaside](http://www.telegraph.co.uk/travel/destinations/europe/montenegro/articles/Budva-Montenegro-Secret-Seaside/)
+- [Gorgeous Montenegro: the best of the coast](https://www.theguardian.com/travel/2016/jun/12/montenegro-highlights-without-high-rollers)
