@@ -10,6 +10,8 @@
 - [Apparently cool](http://www.spain-holiday.com/Las-Palmas-de-Gran-Canaria/articles/the-12-things-you-must-see-and-do-when-visiting-las-palmas-de-gran-canaria) pedestrianized street called [Pérez Galdós](https://www.google.co.uk/maps/place/Calle+Gral.+Bravo,+17,+35002+Las+Palmas+de+Gran+Canaria,+Las+Palmas,+Spain/@28.1045682,-15.4178609,18z/data=!3m1!4b1!4m7!1m4!3m3!1s0xc40958e4ffa236b:0xc529589f29c9b592!2sPlaza+de+Cairasco,+35002+Las+Palmas+de+Gran+Canaria,+Las+Palmas,+Spain!3b1!3m1!1s0xc40958fdb5cbec5:0x3f00339144ee4857)
 - [Vegueta](http://www.telegraph.co.uk/travel/destinations/europe/spain/canaryislands/9586082/Las-Palmas-Canary-Islands-a-cultural-city-guide.html) is the old town
 - [Tafira](http://www.spain-grancanaria.com/uk/places/tafira.html), a posh suburb
+- Ingenio
+  - [Barranque de Guayadeque](http://www.dailymail.co.uk/travel/destinations/article-3419078/Surprising-beautiful-sophisticated-island-Gran-Canaria-revelation-head-beaten-track.html) - caves and ravines and flowers in blossom in Feb
 
 ## Accomodation
 
