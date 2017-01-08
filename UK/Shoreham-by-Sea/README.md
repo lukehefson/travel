@@ -12,7 +12,8 @@
 - Marlipins Museum
 - The dog’s home
 - Cycle to Brighton
-- Look at St Mary de Haura Church
+- St Mary de Haura Church
+- Bramber castle
 
 - Nearby
     - Sussex Wildlife Trust
