@@ -11,11 +11,10 @@
 - Blunden’s fish’n’chips
 - Marlipins Museum
 - The dog’s home
-- Cycle to Brighton
 - St Mary de Haura Church
-- Bramber castle
 
 - Nearby
     - Sussex Wildlife Trust
     - Perch café in Lancing
     - Spring Gardens Pick Your Own (summer only)
+    - Bramber castle
