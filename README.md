@@ -1,4 +1,8 @@
-# Travel
+I like to travel, usually with 👩‍👧‍👧. 
+
+Some of these places I've [been to](https://user-images.githubusercontent.com/1469659/29315680-5957ccd8-81bc-11e7-98f3-5d2c39c94901.png), some I haven't.
+
+# General travel links
 
 - [Buying Local SIM Cards Around The World](http://toomanyadapters.com/buying-local-sim-cards/)
 - [All 48 european countries, ranked by food/drink](https://www.thrillist.com/eat/nation/the-best-places-to-eat-and-drink-in-europe)
