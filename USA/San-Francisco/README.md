@@ -1,3 +1,4 @@
 - Guardian list of [SF on a budget](http://www.theguardian.com/travel/2016/may/12/san-francisco-budget-affordable-food-hotel-spa-readers?utm_content=buffer4dec1&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer)
 - [Dynamo Doughnut & Coffee](http://www.sfbdoughnuttour.com/#/san-fransisco-caa/)
 - [Good sandwich](https://twitter.com/mschoening/status/924377846704873472) on Valencia?
+- Tadich grill and have a hang town fry
