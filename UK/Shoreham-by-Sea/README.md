@@ -7,14 +7,14 @@
 - The Duke of Wellington pub (great beer)
 - The Red Lion pub (ye olde feel)
 - The Bridge pub (for outside drinking)
-- The Beach House restaurant for burgers and/or seafood
+- The Tap House  bar for hipsters (food/craft beer/gin)
 - Blunden’s fish’n’chips
 - Marlipins Museum
 - The dog’s home
 - St Mary de Haura Church
 
 - Nearby
-    - Sussex Wildlife Trust
+    - Woodsmill Sussex Wildlife Trust
     - Perch café in Lancing
     - Spring Gardens Pick Your Own (summer only)
     - Bramber castle
