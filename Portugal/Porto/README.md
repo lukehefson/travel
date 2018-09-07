@@ -12,8 +12,8 @@
 
 ## Map 1
 
-![](https://github.com/lukehefson/travel/blob/master/Portugal/Porto/1.png)
+![](https://github.com/lukehefson/travel/blob/master/Portugal/Porto/2.png)
 
 ## Map 2
 
-![](https://github.com/lukehefson/travel/blob/master/Portugal/Porto/2.png)
+![](https://github.com/lukehefson/travel/blob/master/Portugal/Porto/1.png)
