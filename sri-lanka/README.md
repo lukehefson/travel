@@ -1,0 +1,6 @@
+ - Tangalle beach area
+ - Arugam bay for surf
+ - Kandy culture town
+ - Udawalawe safari (less crowded & better for kids)
+ - Yala safari
+ - Galle colonial town
