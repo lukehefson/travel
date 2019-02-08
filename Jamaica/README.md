@@ -1,0 +1,3 @@
+- http://afamilytravelblog.com/best-beaches-in-jamaica-for-snorkeling/
+- https://www.seehertravel.com/south-coast-jamaica-travel/
+- https://www.goatsontheroad.com/best-beaches-in-jamaica/
