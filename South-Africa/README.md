@@ -1,3 +1,4 @@
 - https://en.wikipedia.org/wiki/Panorama_Route
 - https://www.tripfuser.com/blog/blyde-river-canyon-nature-reserve/
 - https://www.latestsightings.com/latest-sightings-app
+- ['Best spot' at Pretoriuskop apparently](https://www.getaway.co.za/wildlife/game-parks/kruger-accommodation-review-pretoriuskop-rest-camp/)
