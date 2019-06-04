@@ -5,3 +5,10 @@
 - M.Y. China in the Westfield?!? for fish dumplings with spinach skins
 - It's Tops Coffee Shop
 - Tacro at vive la tarte
+- Hotel des art
+- Fairmont hotel in nob hilll
+- Swan oyster dept
+- Li Po (bar in Chinatown)
+- Sam’s burgers in North Beach (open til 4am for food & drinks!)
+- La Concina (real Mexican food)
+- Molinari in North Beach (Subs and Italian deli)
