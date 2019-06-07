@@ -8,3 +8,4 @@ Some of these places I've [been to](https://user-images.githubusercontent.com/14
 - [All 48 european countries, ranked by food/drink](https://www.thrillist.com/eat/nation/the-best-places-to-eat-and-drink-in-europe)
 - [Hotel wifi scores](http://www.hotelwifitest.com)
 - [Great list of tips for booking cheap flights to `cheapest destination`](http://thriftynomads.com/booking-cheapest-flight-possible-anywhere/)
+- [Surf spots in west africa](https://www.bradtguides.com/articles/best-surfing-spots-west-africa/?destination=961) 🏄‍♀️🌍
