@@ -1,1 +1,2 @@
 - [Ghana: The new Canary Islands—or not quite?](https://adventure.com/ghana-cape-coast-west-africa/)
+- [Surfing in Ghana: world-class waves without the crowds](https://www.momondo.com/discover/article/surfing-in-ghana)
