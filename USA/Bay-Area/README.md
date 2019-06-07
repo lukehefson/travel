@@ -12,3 +12,4 @@
 - Sam’s burgers in North Beach (open til 4am for food & drinks!)
 - La Concina (real Mexican food)
 - Molinari in North Beach (Subs and Italian deli)
+- Bandcamp record store [in Oakland](https://daily.bandcamp.com/2019/01/17/bandcamp-oakland-record-store-opening-in-february/)
