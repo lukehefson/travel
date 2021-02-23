@@ -1,3 +1,4 @@
+- [Comprehensive list](https://www.reddit.com/r/BeginnerSurfers/comments/ln9d9z/best_beginner_spotsseason_in_bay_area/) of beginner/intermediate surf spots in the Bay Area
 - Guardian list of [SF on a budget](http://www.theguardian.com/travel/2016/may/12/san-francisco-budget-affordable-food-hotel-spa-readers?utm_content=buffer4dec1&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer)
 - [Dynamo Doughnut & Coffee](http://www.sfbdoughnuttour.com/#/san-fransisco-caa/)
 - [Good sandwich](https://twitter.com/mschoening/status/924377846704873472) on Valencia?
