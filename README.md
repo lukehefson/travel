@@ -4,6 +4,7 @@ Some of these places I've [been to](https://user-images.githubusercontent.com/14
 
 # General travel links
 
+- This seems good: https://bookingcredits.com
 - [Best destinations for beginner/intermediate surfers](https://www.stokedfortravel.com/best-places-to-learn-to-surf/)
 - [Surfing seasons world map infographic](http://surfedukators.com/wp-content/uploads/2015/01/Surfedukators-Surfmap.pdf)
 - [Buying Local SIM Cards Around The World](http://toomanyadapters.com/buying-local-sim-cards/)
